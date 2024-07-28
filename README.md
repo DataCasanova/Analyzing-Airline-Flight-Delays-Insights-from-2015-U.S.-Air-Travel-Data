@@ -90,18 +90,6 @@ Dashboard                        |  Report
 ![](airlinesaveyoiu.JPG)         |   
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 # Recommendations with Relatable Examples
 
 ### Targeted Strategies for Busy Periods:
